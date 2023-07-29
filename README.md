@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @forresthue
-- 👀 I’m here so I can dowmload hoem autoamtion software like seemlesly did on my mac, but without this fun emulator stuff
-- 🌱 I’m currently learning that im most likely inwell obver my head
-- 💞️ I’m looking to collaborate with me deviolet speakers
-- 📫Please reach me at forrestcohan@gmail.com
-to let me know if there is something i can downolad with limitede kowledbge that will run in the background with little effort (really knowledge), that I can simply drag an app to and open it? o had not idea how gravy I had It in IOS. this is far from worth the savings.
-Thaank you, sorry tyo bothder yall, i know im reaching, but hey you cant win if y9ou dont play, right?
+- 👀 I’m here so I can dowmload home autoamtion software through an emulator (which I never knew was a thing). 
+- 🌱 I’m currently embarrassed and learning that im in over my head and after downloadign this and blustacks (which appears to be more strighforward but far more limited in actions) extremely humbled. instruxctrions for both are arlittereally, "Download this, then run this." but its never that simple on my end' 
+- 💞️ I’m looking to collaborate with me devialet speakers which google home did so well.
+- 📫Please reach me at forrestcohan@gmail.com  
+to let me know if there is something I can downolad with limited kowledbge that will run in the background with little effort (see knowledge), that I can simply drag an app. I had no idea how gravy I had It in IOS. this is far from worth the savings.
+Thaank you, sorry to bothder yall but if there is a 7 yr old that can recomend a program or how can easily do it heere, id appreciate it!
 
 <!---
 forresthue/forresthue is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
